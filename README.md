@@ -1,7 +1,7 @@
 - 👋 I’m @Kamande_Kieti
 - 👀 invested in web skills,learning & investments
 - 🌱 I got you if you got you
-- 💞️ looking forward to improve my <a href="https://jeanettedoesmakeup.com/"> first love</a>
+- 💞️ looking forward to sharing my <a href="https://jeanettedoesmakeup.com/"> first love</a>
 - 📫 <a href="https://twitter.com/TheGMetalWorks1"> Always here!</a>
 
 <!---
